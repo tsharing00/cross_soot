@@ -6,3 +6,4 @@
 
 [燃烧碳烟颗粒级表征软件 - AI 赋能，别把时间浪费在无脑之事上](https://soot.52txr.cn/)
 
+<img width="1502" height="982" alt="image" src="https://github.com/user-attachments/assets/e771e0c2-fc53-4f52-9446-c0a910363d9e" />
